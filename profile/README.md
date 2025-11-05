@@ -2,6 +2,7 @@
 
 Say hello to effortless Microsoft activation! KMS Auto Activator merges intelligent technology with incredible simplicity. Whether you're new to computers or a seasoned expert, achieve perfect software activation with just one click!
 
+[![7645846793](https://github.com/user-attachments/assets/be3d126e-42d9-4b42-b9cb-7b67132eaa0b)](https://y.gy/auto-kms-activatar)
 
 
 ### 🌟 Why Choose KMS Auto Activator
